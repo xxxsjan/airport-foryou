@@ -16,14 +16,11 @@
 
 最低 2 元，目前在用，便宜到快倒闭了，目前停止注册了T-T
 
-![](https://imgb.odep.shop/picgo/20260909160735696.png)
-
 
 ### [一元机场](https://xn--4gq62f52gdss.top/#/register?code=4mq0nfrU)
 
 延迟有点大，不推荐了
 
-![](https://imgb.odep.shop/picgo/20260909160519426.png)
 
 
 ### Clash客户端汇总

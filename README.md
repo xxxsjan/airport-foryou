@@ -18,7 +18,7 @@
 
 ### [一元机场](https://xn--4gq62f52gdss.top/#/register?code=4mq0nfrU)
 
-延迟有点大，但便宜，适合兜底。
+延迟有点大，不推荐了
 
 ![](https://imgb.odep.shop/picgo/20260909160519426.png)
 

@@ -12,14 +12,9 @@
 ![](https://imgb.odep.shop/picgo/20260909160405325.png)
 
 
-### [性价比机场](https://xn--6nq44r2uh9rhj7f.com/#/register?code=qWIdvS4s)
+ 
 
-最低 2 元，目前在用，便宜到快倒闭了，目前停止注册了T-T
-
-
-### [一元机场](https://xn--4gq62f52gdss.top/#/register?code=4mq0nfrU)
-
-延迟有点大，不推荐了
+ 
 
 
 

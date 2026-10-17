@@ -7,9 +7,9 @@
 
 ### [NanoCloud](https://edu.360buyimg.men/auth/register?code=1prDWZTB)
 
-最低 1 元，延迟低，github youtube都畅行，推荐👍
+最低 2 元，延迟低，github youtube都畅行，推荐👍
 
-![](https://imgb.odep.shop/picgo/20260909160405325.png)
+![fromtool-1792230145221-20261017-174316](https://cdn.jsdelivr.net/gh/xxxsjan/pic-bed@main/fromtool/fromtool-1792230145221-20261017-174316.jpg)
 
 
  
